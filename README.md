@@ -11,5 +11,5 @@ Meu nome é Gabi
 0000111386106xsp@al.educacao.sp.gov.br
 
 
-![descrição do GIF](https://media1.tenor.com/m/VWJ6lJQnSpUAAAAC/raichu-pok%C3%A9mon-raichu.gif)
+![descrição do GIF](https://media1.tenor.com/m/aLGfac7LcqMAAAAC/pokemon-pikachu.gif)
 
