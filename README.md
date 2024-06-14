@@ -11,4 +11,4 @@ Meu nome é Gabi
 0000111386106xsp@al.educacao.sp.gov.br
 
 
-![descrição do GIF] u-0d57c8446f083257089a286f13b006342fd99dc9/MyFiles/Downloads/Raichu%20Pok%C3%A9mon%20Raichu%20GIF%20-%20Raichu%20Pok%C3%A9mon%20Raichu%20Electricity%20-%20Descobrir%20e%20Compartilhar%20GIFs
+![descrição do GIF] https://media1.tenor.com/m/VWJ6lJQnSpUAAAAC/raichu-pok%C3%A9mon-raichu.gif
